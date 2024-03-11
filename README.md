@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Unity**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: cofi2345 Discord</h3>
 <p align="left">
 </p>
 
